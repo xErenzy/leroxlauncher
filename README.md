@@ -1,1 +1,3 @@
 # leroxlauncher
+
+Yeni Güncellemeler Yakında!
